@@ -7,15 +7,15 @@
 
 - 🔭 I’m Enjoying in [Telegram](https://t.me/ImDark_K0)
 
-- 🌱 I’m Currently Learning **Everything**
+- 🌱 I’m Currently Learning **The World**
 
 - 👯 I’m Main Admin in [EHI Podda](https://t.me/ehi_podda_official)
 
 - 🤝 I’m Still A **Student**
 
-- 📫 How To Reach Me **ImDarkK0@protonmail.com**
+- 📫 Reach Me At **ImDarkK0@protonmail.com**
 
-- ⚡ Fun Fact **I'm Not A One From 69 Laks 😂**
+- ⚡ Fun Fact **I'm Not a One From 69 Laks 😂**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
