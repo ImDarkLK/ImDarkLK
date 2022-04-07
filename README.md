@@ -5,8 +5,6 @@
 
 <p align="left"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=imdarklk" alt="imdarklk" /></a> </p>
 
-<p align="left"> <a href="https://twitter.com/imdarkk0" target="blank"><img src="https://img.shields.io/twitter/follow/imdarkk0?logo=twitter&style=for-the-badge" alt="imdarkk0" /></a> </p>
-
 - 🔭 I’m Enjoying in [Telegram](https://t.me/ImDark_K0)
 
 - 🌱 I’m Currently Learning **Everything**
