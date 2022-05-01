@@ -9,7 +9,9 @@
 
 - 🌱 I’m Currently Learning **The World**
 
-- 👯 I’m Main Admin in [EHI Podda](https://t.me/ehi_podda_official)
+- 👯 I’m Main Admin in [**EHI Podda**](https://t.me/ehi_podda_official)
+
+- 🍑 I'm Owner in [**EHI Podda Giveaways**](https://t.me/+QAkqlsN-yy02NGRl)
 
 - 🤝 I’m Still A **Student**
 
